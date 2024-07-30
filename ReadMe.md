@@ -1,5 +1,5 @@
 # 💫 About Me:
-😄 Opa! É um prazer, tê-los por aqui!<br>🧑‍💻 Me chamo Juan Pina e sou Analista de Sistemas.
+😄 Opa! É um prazer tê-los por aqui!<br>🧑‍💻 Me chamo Juan Pina e sou Analista de Sistemas.
 
 
 ## 🌐 Socials:
